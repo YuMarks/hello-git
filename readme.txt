@@ -1,1 +1,1 @@
-Hello my name is Yulia and I write big, ugly code.
+Hello my name is Yulia and I write big, ugly code. Time for a break.
